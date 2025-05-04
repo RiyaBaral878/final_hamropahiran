@@ -1,5 +1,4 @@
-![Alt text](https://file%2B.vscode-resource.vscode-cdn.net/Users/riyabaral/Desktop/494575234_3904372303147532_4160597189755394445_n.jpg?version%3D1746369587328)
-
+![494575234_3904372303147532_4160597189755394445_n](https://github.com/user-attachments/assets/b60bfc60-7e0c-46c7-9a16-e194a03cf625)
 Hamro Pahiran is more than just a fashion initiative — it is a cultural movement rooted in the idea that clothing is not only a form of expression but also a powerful medium of heritage, identity, and pride. At its core, the project aims to revive, preserve, and modernize traditional Nepali attire by blending it with contemporary styles and delivering it through a vibrant, accessible platform for both local and global audiences.
 
 In a rapidly globalizing world, the richness of Nepal’s diverse clothing traditions — whether it be the Gunyo-Cholo of the Newars, the Daura Suruwal of the hills, the Mekhla of the eastern plains, or the handwoven Dhaka fabrics — is fading under the dominance of mass-produced, western fashion. Hamro Pahiran emerges as a timely intervention to reconnect the youth with their roots, celebrate our multiculturalism, and empower local communities through sustainable fashion entrepreneurship.
