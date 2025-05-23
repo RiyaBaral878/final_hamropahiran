@@ -12,3 +12,5 @@ To engage younger demographics and the tech-savvy generation, the platform integ
 In the long term, Hamro Pahiran also aims to establish mobile fashion pop-up experiences in rural and urban settings, collaborate with Nepali diaspora communities abroad, and promote traditional clothing during festivals, weddings, and state ceremonies. By doing so, it fosters a global appreciation for Nepali fashion heritage, positioning it as both elegant and ecologically conscious.
 
 In essence, Hamro Pahiran is a tapestry woven from the threads of identity, empowerment, and innovation. It speaks to those who take pride in their origins while embracing the future. It offers a wardrobe that not only enhances how people look — but enriches how they feel, where they come from, and who they are.
+
+Hamro Pahiran is an ecommerce website.
